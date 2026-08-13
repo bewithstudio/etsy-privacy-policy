@@ -1,0 +1,1 @@
+# etsy-privacy-policy
